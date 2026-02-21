@@ -1,1 +1,1 @@
-![Notes app](https://github.com/user-attachments/assets/e178cca1-11be-4e6a-a4c3-5187d7d5b830)
+![FAKE NEWS SS](https://github.com/user-attachments/assets/0ef2b1d5-7e8a-4c35-81e5-59826d0afc0d)
